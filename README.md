@@ -1,2 +1,3 @@
 # l00k1ngl4ss
-◕ ◞ ◕ This project was made using https://netnet.studio
+
+https://mayav1s1ons.github.io/l00k1ngl4ss/
